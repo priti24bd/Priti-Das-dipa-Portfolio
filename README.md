@@ -116,7 +116,7 @@ Goal: Increase youth involvement in blood donation and raise awareness.
 
 Email:dipapritidas@gmail.com
 
-LinkedIn: linkedin.com/in/preeti-dasdeepa
+LinkedIn: linkedin.com/in/priti-das-dipa
 
 GitHub: github.com/priti24bd
 
